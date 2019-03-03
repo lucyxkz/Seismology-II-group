@@ -1,2 +1,0 @@
-  njjjnj
-kugkuhki
